@@ -1,0 +1,2 @@
+# about-us
+According to marketing giant HubSpot, 52% of visitors to your website want to see your "about us" page immediately. Your company's about us page says a lot about who you are and will no doubt be seen by at least half of your website's visitors. The design of your website's about us page is also a visual reflection of your company - an opportunity to increase the interest of site visitors - so leave no stone unturned. This article will provide you with an effective about us page design.
